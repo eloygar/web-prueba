@@ -34,7 +34,7 @@ https://es.wikipedia.org/wiki/Vena
 ![alt text](https://w7.pngwing.com/pngs/235/656/png-transparent-black-broken-heart-illustration-broken-heart-symbol-computer-icons-heart-emoji-love-heart-logo-thumbnail.png)
 
 
-<img width="80px" src="https://w7.pngwing.com/pngs/235/656/png-transparent-black-broken-heart-illustration-broken-heart-symbol-computer-icons-heart-emoji-love-heart-logo-thumbnail.png">
+<img width="80px" src="https://estaticos.muyinteresante.es/media/cache/1140x_thumb/uploads/images/gallery/59bbb29c5bafe878503c9872/husky-siberiano-bosque.jpg">
 
 # Algoritmo para ser feliz
 
